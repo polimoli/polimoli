@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Polina
+- 👀 I’m live in Minsk (Belarus)
+- 🌱 I’m currently learning in BNTU
